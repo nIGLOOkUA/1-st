@@ -1,1 +1,1 @@
-It is interesting to study programming 😇😇😇
+Nothing
